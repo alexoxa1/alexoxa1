@@ -1,5 +1,4 @@
 - 📫 How to reach me: https://t.me/pavlo_puhachov
-- ‍🎓 Student of Kyiv Polytehnic Institute
 
 
 <!--
